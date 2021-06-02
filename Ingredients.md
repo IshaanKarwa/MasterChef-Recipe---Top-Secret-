@@ -1,0 +1,1 @@
+Rice, Haldi(Turmeric Powder), Oil, Jeera(Cuman Seeds), Sugar, Kadi Patta(Curry leaves), Green Chilli, Salt, *Saunf(Fennel Seeds)
